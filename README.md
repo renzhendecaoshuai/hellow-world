@@ -1,2 +1,5 @@
 # hellow-world
-just another respositor
+ lsqyyds
+ 
+ 
+ jiuzhe qiunizhongwen jiangke
